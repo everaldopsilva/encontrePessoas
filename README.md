@@ -35,6 +35,10 @@ Mome: Rodrigo Amora
 E-mail: rodrigo.amora.freitas@gmail.com
 Skype: rodrigo.amora 
 
+Nome: Everaldo Pereira da Silva
+E-mail: vekrsilva@gmail.com
+Skype: everaldopsilva
+
 Adicionem abaixo da mesma forma para facilitar :)
 
 Abraços!
